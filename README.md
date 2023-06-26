@@ -65,5 +65,5 @@ Email : sreevatsakulkarni26@gmail.com
 
 # Social Media Account
 LINKEDIN 👇 <BR>
-[SREEVATSA KULKARNI](www.linkedin.com/in/sreevatsa-kulkarni)
+[SREEVATSA KULKARNI](https://www.www.linkedin.com/in/sreevatsa-kulkarni) &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
